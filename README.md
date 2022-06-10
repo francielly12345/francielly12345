@@ -1,4 +1,4 @@
-- 👋 Oi, eu sou @francielly12345
+- 👋 Oi, eu sou francielly
 - 👀 Estou interessado em aprender.
 - 🌱 Estou aprendendo depositar arquivos.
 - 💞️ Estou procurando colaborar em compartilhar arquivos para outras pessoas usarem
